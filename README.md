@@ -9,4 +9,4 @@
 ![20210904_105454_0000](https://github.com/Urvashi2002/The_Art_Soul/assets/134716847/212bb1f6-8ca6-4dab-ac70-2f5be95a4e0d)
 ![20200614_214435](https://github.com/Urvashi2002/The_Art_Soul/assets/134716847/d1a5f982-0824-4190-9419-9eacd50f26ab)
 
-Next Page -->https://github.com/Urvashi2002/project/blob/main/README.mdhttps://github.com/Urvashi2002/project/blob/main/README.md
+Next Page --> https://github.com/Urvashi2002/project
